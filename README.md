@@ -83,4 +83,18 @@ https://github.com/KJrTT/Tome-of-Legacy/releases
   
   - Некоторые анимации требуют полировки
 
+### Ссылки на исходный код
 
+https://disk.yandex.ru/d/KcnsV6Pcst-aAQ
+
+https://disk.yandex.ru/d/lzA43qMo3Onwpw
+
+https://disk.yandex.ru/d/H_cRu61I9aPbhg
+
+https://disk.yandex.ru/d/21ETMzbBBKMUeQ
+
+https://disk.yandex.ru/d/Y3hBy_hnUfqDog
+
+https://disk.yandex.ru/d/O-s61bp2meLuNg
+
+https://disk.yandex.ru/d/F9YvjuS69VdECQ
